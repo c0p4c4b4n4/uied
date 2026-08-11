@@ -45,3 +45,64 @@
 **helicopter** *(n)* an aircraft with large, rotating blades on top, which can take off and land vertically.
 
 ---
+
+**hell**
+1. *(n)* a place of suffering and misery, where evil people are believed to go after they die.
+2. *(n)* a very unpleasant place, thing, or state. *It was hell having to work such long hours.* **hellish** *(adj)*.
+
+---
+
+**hello** *(interjection)* a word said to somebody when you meet them.
+
+---
+
+**helm**
+1. *(n)* the wheel or handle used to steer a boat. **helmsman** *(n)*.
+2. If someone is at the **helm** of something, they are in charge of it.
+
+---
+
+**helmet** *(n)* a hard hat that protects your head.
+
+---
+
+**help** *helping helped*
+1. *(v)* to assist.
+2. *(n)* assistance. **helper** *(n)*.
+**helpful** *(adj)* friendly and willing to help. **helpfulness** *(n)*. **helpfully** *(adv)*.
+**helping** *(n)* a portion of food.
+**helpless** *(adj)* If you are helpless, you cannot look after yourself. **helplessness** *(n)*. **helplessly** *(adv)*.
+
+---
+
+**hem** *hemming hemmed*
+1. *(v)* to fold over an edge of material and sew it down. **hem** *(n)*.
+2. *(v)* If you are **hemmed in**, you are surrounded and cannot get out.
+
+---
+
+**hemisphere** *(n)* one half of a sphere, especially of the Earth. *France is in the Earth's northern hemisphere.*
+
+---
+
+**hemoglobin** *see* **haemoglobin**.
+
+---
+
+**hemophilia** *see* **haemophilia**.
+
+---
+
+**hemorrhage** *see* **haemorrhage**.
+
+---
+
+**hemp** *(n)* a plant whose fibres are used to make rope and sacks.
+
+---
+
+**hen**
+1. *(n)* a bird kept for its eggs and its meat. See **chicken**.
+2. *(n)* a female bird.
+
+---
