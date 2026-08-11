@@ -105,3 +105,59 @@
 **hijack** *hijacking hijacked* *(v)* If someone hijacks a plane or other vehicle, they take control of it and force its pilot or driver to go somewhere. **hijacker** *(n)*. **hijacking** *(n)*.
 
 ---
+
+**hike** *(n)* a long walk in the country. **hiker** *(n)*. **hiking** *(n)*. **hike** *(v)*.
+
+---
+
+**hilarious** *(adj)* very funny. **hilarity** *(n)*.
+
+---
+
+**hill** *(n)* a raised area of land that is smaller than a mountain. **hilly** *(adj)*.
+
+---
+
+**himself** *(pronoun)* him and no one else. *Justin has hurt himself.*
+
+---
+
+**hinder** *hindering hindered* *(v)* If someone or something **hinders** you, they make things difficult for you.
+
+---
+
+**Hindi** *(n)* a language spoken in northern India.
+
+---
+
+**Hinduism** *(n)* the main religion of India. Hindus have lots of gods, and believe that they live many lives in different bodies. *This bronze statue represents Shiva, one of the main gods in Hinduism.* **Hindu** *(n)*.
+
+---
+
+**hinge** *hingeing hinged*
+1. *(n)* a movable metal joint on a window or door. **hinged** *(adj)*.
+2. *(v)* to depend on something. *My future hinges on your decision.*
+
+---
+
+**hint**
+1. *(n)* a clue, or a helpful tip. **hint** *(v)*.
+2. *(n)* a trace, or a tiny amount. *There's a hint of garlic in this soup.*
+
+---
+
+**hip** *(n)* the part of your body between your thighs and your waist.
+
+---
+
+**hip-hop** *(n)* a type of American rap music.
+
+---
+
+**hippie** or **hippy** *hippies (n)* a name for someone who does not live or dress in a conventional way. Hippies often live in groups.
+
+---
+
+**hippopotamus** *hippopotamuses* or *hippopotami (n)* a large African mammal with short legs and thick skin that lives near water.
+
+---
