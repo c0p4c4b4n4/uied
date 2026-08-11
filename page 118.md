@@ -119,3 +119,80 @@
 **heart attack** *(n)* If someone has a **heart attack**, they collapse because their heart has started to beat irregularly.
 
 ---
+
+**heartbroken** *(adj)* If you are **heartbroken**, you are extremely sad.
+
+---
+
+**hearth** *(n)* the area in front of a fireplace.
+
+---
+
+**heartless** *(adj)* cruel and unkind. **heartlessness** *(n)*. **heartlessly** *(adv)*.
+
+---
+
+**hearty** *heartier heartiest*
+1. *(adj)* cheerful and enthusiastic. **heartiness** *(n)*. **heartily** *(adv)*.
+2. *(adj)* A **hearty** meal is large and filling.
+
+---
+
+**heat** *heating heated*
+1. *(n)* great warmth.
+2. *(v)* to warm or cook something.
+3. *(n)* passion. *In the heat of the argument, I lost my self-control.* **heated** *(adj)*. **heatedly** *(adv)*.
+4. *(n)* a stage in a competition. *Callum got through to the third heat.*
+5. **heat wave** *(n)* unusually hot weather that lasts for a few days.
+
+---
+
+**heath** *(n)* a large, wild area of grasses, ferns, and heather.
+
+---
+
+**heathen**
+1. *(n)* someone who does not believe in one of the main world religions.
+2. *(n) (old-fashioned)* someone who is uncivilized.
+
+---
+
+**heather** *(n)* a small, spiky bush with pink, purple, or white flowers.
+
+---
+
+**heave** *heaving heaved*
+1. *(v)* to lift, pull, push, or throw something with great effort.
+2. *(v)* to go up and down. *Gloria's chest heaved with emotion.*
+
+---
+
+**heaven**
+1. *(n)* a wonderful place where God is believed to live and where good people are believed to go after they die.
+2. *(n)* a marvellous place, thing, or state. *It was heaven to be on holiday.* **heavenly** *(adj)*.
+3. **the heavens** *(plural n)* the sky.
+
+---
+
+**heavy** *heavier heaviest*
+1. *(adj)* weighing a lot. **heaviness** *(n)*. **heavily** *(adv)*.
+2. *(adj)* great in amount or force. *Heavy fighting.* **heavily** *(adv)*.
+3. *(adj) (slang)* serious and hard to cope with. *A heavy film.*
+
+---
+
+**heavy metal** *(n)* a type of music with a strong beat, featuring loud electric guitars and drums.
+
+---
+
+**heckle** *heckling heckled* *(v)* to interrupt a speaker by making rude comments. **heckler** *(n)*.
+
+---
+
+**hectic** *(adj)* very busy. **hectically** *(adv)*.
+
+---
+
+**hedge** *(n)* a border made from bushes.
+
+---
