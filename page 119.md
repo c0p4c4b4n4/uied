@@ -106,3 +106,37 @@
 2. *(n)* a female bird.
 
 ---
+
+**hence**
+1. *(adv)* for this reason.
+2. *(adv) (old-fashioned)* from this place.
+
+---
+
+**heptathlon** *(n)* a competition for women, made up of seven athletic events.
+
+---
+
+**heraldry** *(n)* the study of coats of arms and family histories. *The picture shows some patterns and symbols used in heraldry.*
+
+---
+
+**herb** *(n)* a plant used in cooking or medicine. **herbalist** *(n)*. **herbal** *(adj)*.
+
+---
+
+**herbivore** *(n)* an animal that eats plants rather than meat. *Rabbits are herbivores.* **herbivorous** *(adj)*.
+
+---
+
+**herd** *herding herded*
+1. *(n)* a large group of animals.
+2. *(v)* to make people or animals move together as a group. *We were all herded into a tiny room.*
+
+---
+
+**here**
+1. *(adv)* to, at or in this place. *Please come here.*
+2. *(adv)* at this point in time. *Here the music gets louder.*
+
+---
