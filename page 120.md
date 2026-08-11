@@ -74,3 +74,34 @@
 **hideous** *(adj)* ugly, or horrible. **hideousness** *(n)*. **hideously** *(adv)*.
 
 ---
+
+**hieroglyphics** *(hi-ra-glif-iks) (plural n)* writing used by ancient Egyptians, made up of pictures and symbols. *The hieroglyphics shown below were used to represent both objects and letters or sounds.*
+
+---
+
+**high** *higher highest*
+1. *(adj)* Something that is **high** is a great distance from the ground. *A high mountain.* **high** *(adv)*.
+2. *(adj)* measuring from top to bottom. *The tree was 30m high.*
+3. *(adj)* more than the normal level or amount. *High prices.* **highly** *(adv)*.
+4. *(adj) (informal)* If you feel **high**, you are very excited.
+5. **high tide** *(n)* the time when the sea is furthest up the beach.
+
+**higher education** *(n)* education at college or university.
+
+**highlands** *(plural n)* areas with mountains or hills. **highland** *(adj)*.
+
+**highlight** *highlighting highlighted*
+1. *(v)* to draw attention to something.
+2. *(n)* the best or most interesting part of something.
+3. *(v)* to mark important words using a pen with brightly coloured ink.
+4. **highlights** *(plural n)* fair streaks in your hair.
+
+---
+
+**highwayman** *highwaymen (n)* a robber, usually on horseback, who used to stop travellers on the road and steal from them.
+
+---
+
+**hijack** *hijacking hijacked* *(v)* If someone hijacks a plane or other vehicle, they take control of it and force its pilot or driver to go somewhere. **hijacker** *(n)*. **hijacking** *(n)*.
+
+---
