@@ -102,3 +102,78 @@
 2. *(n)* a piece of equipment used for lifting heavy objects.
 
 ---
+
+**hold** *holding held*
+1. *(v)* to carry, support, or keep something. *Hold the cup carefully.* **holder** *(n)*
+2. *(v)* to contain something, or be able to contain it. *This mug holds a pint.*
+3. *(v)* to organize or arrange something. *We are holding a party.*
+4. *(n)* the part of a ship where the cargo is stored.
+
+---
+
+**hole**
+1. *(n)* a hollow place, or a gap.
+2. *(n)* an animal's burrow.
+3. *(n) (informal)* an unpleasant or dirty place. *Sidney's flat is a hole.*
+
+---
+
+**holiday** *(n)* time away from school or work, especially a trip away from home.
+
+---
+
+**hollow** *hollowing hollowed*
+1. *(adj)* If something is **hollow**, it has an empty space inside it. **hollow** *(n)*
+2. **hollow out** *(v)* If you **hollow something out**, you take its insides out.
+
+---
+
+**holly** *(n)* an evergreen tree or bush with prickly leaves and red berries.
+
+---
+
+**hologram** *(n)* an image made by laser beams that looks three-dimensional.
+
+---
+
+**holster** *(n)* a holder for a pistol, worn on a belt.
+
+---
+
+**holy** *holier holiest* *(adj)* to do with or belonging to God or a god.
+
+---
+
+**Holy Communion** *(n)* a Christian service in which people eat bread and drink wine in memory of the death and resurrection of Jesus Christ.
+
+---
+
+**home**
+1. *(n)* Your **home** is where you live or belong.
+2. If you **feel at home** with something or someone, you feel comfortable with them.
+
+---
+
+**homesick** *(adj)* If you are **homesick**, you miss your home and family.
+
+---
+
+**homicide** *(n)* murder.
+
+---
+
+**homoeopathy** *(home-ee-op-ath-ee) (n)* a way of treating illness by giving people very small amounts of drugs that produce the same symptoms as the illness. **homoeopathic** *(adj)*
+
+---
+
+**homosexual** *(adj)* Someone who is **homosexual** has sexual feelings for a person of the same sex. **homosexual** *(n)*, **homosexuality** *(n)*.
+
+---
+
+**honest** *(adj)* An **honest** person is truthful and will not lie or steal. **honesty** *(n)*, **honestly** *(adv)*.
+
+---
+
+**honey** *(n)* a sweet, sticky, golden-brown substance made by bees. See **hive**, **honeycomb**.
+
+---
