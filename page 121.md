@@ -60,3 +60,45 @@
 2. If someone is **HIV positive**, they have the HIV virus and may develop AIDS.
 
 ---
+
+**hive** *(n)* a box for keeping bees so that their honey can be collected. *The queen bee lays her eggs in the brood box and honey is stored in the supers. The honey-filled supers are collected from the hive by beekeepers. Also see* **honeycomb**.
+
+---
+
+**hoard** *hoarding hoarded* *(v)* to collect and store things. **hoard** *(n)*, **hoarder** *(n)*
+
+---
+
+**hoarding** *(n)* a high fence or board where posters are displayed.
+
+---
+
+**hoarse** *hoarser hoarsest* *(adj)* A **hoarse** voice is rough or croaky.
+
+---
+
+**hoax** *(rhymes with pokes) hoaxes* *(n)* a trick, or a practical joke.
+
+---
+
+**hobble** *hobbling hobbled* *(v)* to walk with difficulty, because you are in pain or are injured.
+
+---
+
+**hobby** *hobbies* *(n)* something that you enjoy doing in your spare time.
+
+---
+
+**hockey** *(n)* a game played with sticks and a ball, by two teams aiming to score goals.
+
+---
+
+**hoe** *(n)* a gardening tool with a long handle and a thin blade, used for weeding and loosening earth. **hoe** *(v)*
+
+---
+
+**hoist** *hoisting hoisted*
+1. *(v)* to lift something heavy, usually with a piece of equipment.
+2. *(n)* a piece of equipment used for lifting heavy objects.
+
+---
