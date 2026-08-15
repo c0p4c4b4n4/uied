@@ -76,3 +76,55 @@
 2. *(adj)* bad, or lacking in skill. *You're hopeless at map reading!* **hopelessness** *(n)*. **hopelessly** *(adv)*
 
 ---
+
+**horde** *(n)* a large, noisy, moving crowd of people or animals.
+
+---
+
+**horizon**
+1. *(n)* the line where the sky and the Earth or sea seem to meet.
+2. *(n)* the limit of your experience or opportunities. *Travel broadens your horizons.*
+
+---
+
+**horizontal** *(adj)* flat and parallel to the ground. *A horizontal line.* **horizontally** *(adv)*
+
+---
+
+**hormone** *(n)* Your **hormones** are chemicals made in your body that affect the way that you grow and develop. **hormonal** *(adj)*
+
+---
+
+**horn**
+1. *(n)* a hard, bony growth on the head of some animals. **horned** *(adj)*
+2. *(n)* the hard, bony substance that horns and hooves are made from.
+3. *(n)* a musical instrument that you blow. *A French horn.* See **brass**.
+4. *(n)* a machine that gives a signal by making a hooting sound. *A car horn.*
+
+---
+
+**horoscope** *(n)* a prediction about your life, based on the position of the stars and planets when you were born.
+
+---
+
+**horrible** *(adj)* very unpleasant. **horribly** *(adv)*
+
+---
+
+**horrid** *(adj)* nasty, or unkind.
+
+---
+
+**horrific** *(adj)* shocking.
+
+---
+
+**horrify** *horrifies horrifying horrified* *(v)* If something **horrifies** you, you are shocked and disgusted by it. **horrifying** *(adj)*. **horrifyingly** *(adv)*
+
+---
+
+**horse**
+1. *(n)* a large, strong animal with hooves, that people ride or use to pull coaches, carriages, ploughs, etc. *The picture shows a male Anglo-Arab horse.*
+2. *(n)* a piece of gymnastics apparatus that you jump over.
+
+---
