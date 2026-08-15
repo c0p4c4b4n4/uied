@@ -25,3 +25,54 @@
 3. *(n) (US)* the cover for a car's engine (bonnet, *UK*).
 
 ---
+
+**hoof** *hooves* or *hoofs* *(n)* the hard covering over the foot of a horse, deer, etc. See **horse**.
+
+---
+
+**hook**
+1. *(n)* a curved piece of metal or plastic, used to catch or hold something.
+2. *(n)* a punch in boxing, made with the elbow bent. *A right hook.*
+
+---
+
+**hooked**
+1. *(adj)* curved. *A hooked nose.*
+2. *(adj) (slang)* If you are **hooked** on something, you like it a lot, or are addicted to it.
+
+---
+
+**hooligan** *(n)* a noisy, violent person who makes trouble. **hooliganism** *(n)*
+
+---
+
+**hoop** *(n)* a large ring. **hooped** *(adj)*
+
+---
+
+**hooray** *see* **hurray**
+
+---
+
+**hoot** *hooting hooted* *(v)* to make a sound like an owl or a car horn.
+
+---
+
+**hop** *hopping hopped*
+1. *(v)* to jump, especially on one leg. *hop (n)*
+2. *(v) (informal)* to get into or out of a vehicle. *Hop in the car!*
+3. hops *(plural n)* the dried seed cases of hop plants, that are used to make beer.
+
+---
+
+**hope** *hoping hoped*
+1. *(v)* to wish for or expect something. **hopeful** *(adj)*. **hopefully** *(adv)*
+2. *(n)* a feeling of expectation or confidence. *I have plenty of hope for the future.* **hopefulness** *(n)*. **hopeful** *(adj)*. **hopefully** *(adv)*
+
+---
+
+**hopeless**
+1. *(adj)* without hope. *A hopeless case.* **hopelessness** *(n)*. **hopelessly** *(adv)*
+2. *(adj)* bad, or lacking in skill. *You're hopeless at map reading!* **hopelessness** *(n)*. **hopelessly** *(adv)*
+
+---
