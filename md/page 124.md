@@ -115,3 +115,59 @@
 **hurtle** *hurtling hurtled* *(v)* to move at great speed.
 
 ---
+
+**husband** *(n)* the male partner in a marriage.
+
+---
+
+**hush** *hushes hushing hushed*
+1. *(n)* a sudden period of quietness. *A hush fell on the audience as the curtain went up.*
+2. *(interject)* be quiet! *Hush!*
+3. **hush up** *(v)* to keep something secret.
+4. **hush-hush** *(adj) (informal)* very secret and confidential.
+
+---
+
+**husk** *(n)* the outer casing of seeds or grains.
+
+---
+
+**husky** *huskies; huskier huskiest*
+1. *(adj)* A **husky** voice sounds low and hoarse. **huskiness** *(n)*. **huskily** *(adv)*.
+2. *(n)* a strong dog with a furry coat, bred to pull sledges in arctic conditions.
+
+---
+
+**hustle** *hustling hustled* *(v)* to push someone roughly in order to make them move. *The guard hustled the prisoners out of the room.*
+
+---
+
+**hut**
+1. *(n)* a small, primitive house.
+2. *(n)* a wooden shed.
+
+---
+
+**hutch** *hutches* *(n)* a wooden cage for rabbits or other small pets.
+
+---
+
+**hybrid** *(n)* a plant or an animal that has been bred from two different species.
+
+---
+
+**hydrant** *(n)* an outdoor water tap for use in emergencies.
+
+---
+
+**hydraulic** *(hi-draw-ik) (adj)* **Hydraulic** machines work by power that is created by liquid being forced through pipes under pressure. **hydraulics** *(singular n)*.
+
+---
+
+**hydroelectricity** *(n)* electricity that is made from energy produced by running water. **hydroelectric** *(adj)*.
+
+---
+
+**hydrofoil** *(n)* a boat with ski-like attachments at the front and back, which lift the hull out of the water once the boat is travelling fast.
+
+---
