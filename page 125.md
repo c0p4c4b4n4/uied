@@ -95,3 +95,77 @@
 **ice-skate** *ice-skating ice-skated (v)* to move around on ice, wearing high-sided boots with blades on the bottom. **ice skate** *(n).*
 
 ---
+
+**icicle** *(n)* a long, thin stem of ice, formed from dripping water which has frozen.
+
+---
+
+**icing** *(n)* a sugar coating used to decorate cakes.
+
+---
+
+**icon** or **ikon**
+1. *(n)* a picture of Jesus or a saint found in some Eastern churches such as the Greek and Russian Orthodox churches. *This icon was painted by a Russian artist in the early 13th century.*
+2. *(n)* one of several small pictures on a computer screen, representing programs or functions that you can use.
+
+---
+
+**icy** *icier iciest*
+1. *(adj)* very cold, or covered with ice.
+2. *(adj)* unfriendly. *An icy stare.*
+
+---
+
+**ID** short for **identification**.
+
+---
+
+**idea** *(n)* a thought, or a plan.
+
+---
+
+**ideal**
+1. *(adj)* very suitable, or perfect. *Hamsters make ideal pets.*
+2. *(n)* the situation you would most like to see. *My ideal is world peace.* **idealistic** *(adj).*
+
+---
+
+**identical** *(adj)* exactly alike. **identically** *(adv).*
+
+---
+
+**identification** *(n)* something that proves who you are. *A driving licence is often used for identification.*
+
+---
+
+**identify** *identifies identifying identified (v)* to recognize something or somebody.
+
+---
+
+**identity** *identities (n)* your identity is who you are.
+
+---
+
+**idiom** *(n)* a commonly used expression or phrase that means something different from what it appears to mean. For example, if you catch someone "red-handed", it does not mean that their hands are red.
+
+---
+
+**idiot** *(n)* a foolish person. **idiotic** *(adj),* **idiotically** *(adv).*
+
+---
+
+**idle** *idler idlest*
+1. *(adj)* lazy. **idleness** *(n),* **idly** *(adv).*
+2. *(adj)* not active. *The factory stood idle during the strike.*
+
+---
+
+**idol**
+1. *(n)* someone or something that is worshipped as a god.
+2. *(n)* someone whom other people love and admire. *A pop idol.*
+
+---
+
+**i.e.** an abbreviation of the Latin phrase *id est*, which means "that is", and is used to explain something further. *It's the penultimate shop, i.e. the one before last.*
+
+---
