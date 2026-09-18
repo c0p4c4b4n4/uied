@@ -65,3 +65,33 @@
 **hysterical** *(adj)* if someone is hysterical, they are very emotional and out of control, because they are very excited, frightened, or angry. **hysteria** *(n),* **hysterically** *(adv).*
 
 ---
+
+**ice** *icing iced*
+1. *(n)* frozen water. **ice** *(v),* **icy** *(adj).*
+2. *(v)* if someone ices a cake, they cover it with a sweet coating.
+
+---
+
+**Ice age** *(n)* a very early period of time when a large part of the world was covered with ice.
+
+---
+
+**iceberg** *(n)* a huge mass of ice floating in the sea.
+
+---
+
+**ice cream** *(n)* a sweet, frozen food made from milk or cream.
+
+---
+
+**ice hockey** *(n)* a team game played with sticks and a flat disc called a puck, by skaters aiming to score goals.
+
+---
+
+**ice-rink** *(n)* a place where people skate on a prepared surface of ice.
+
+---
+
+**ice-skate** *ice-skating ice-skated (v)* to move around on ice, wearing high-sided boots with blades on the bottom. **ice skate** *(n).*
+
+---
