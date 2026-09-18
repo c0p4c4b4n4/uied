@@ -67,3 +67,51 @@
 **hungry** *hungrier hungriest* *(adj)* wanting food. **hunger** *(n)*. **hungrily** *(adv)*.
 
 ---
+
+**hunk**
+1. *(n)* a large piece of bread, cheese, meat, etc.
+2. *(n) (slang)* an attractive man.
+
+---
+
+**hunt** *hunting hunted*
+1. *(v)* to search for something. *Lisa hunted for her watch.*
+2. *(v)* to chase foxes or other wild animals for sport. **hunt** *(n)*. **hunter** *(n)*. **hunting** *(n)*.
+
+---
+
+**hurdle** *hurdling hurdled*
+1. *(n)* a small fence that you jump over in a running event. **hurdler** *(n)*. **hurdling** *(n)*.
+2. *(v)* to jump over something.
+3. *(n)* an obstacle.
+
+---
+
+**hurl** *hurling hurled* *(v)* to throw something very strongly.
+
+---
+
+**hurray** or **hooray** or **hurrah** *(interject)* a word used when people cheer.
+
+---
+
+**hurricane** *(n)* a violent storm.
+
+---
+
+**hurry** *hurries hurrying hurried*
+1. *(v)* to do things as fast as possible.
+2. When you are in a hurry, you do everything very quickly and often impatiently. **hurried** *(adj)*.
+
+---
+
+**hurt** *hurting hurt*
+1. *(v)* to cause pain.
+2. *(v)* to be in pain.
+3. *(v)* to upset somebody by doing or saying something unkind. **hurtful** *(adj)*.
+
+---
+
+**hurtle** *hurtling hurtled* *(v)* to move at great speed.
+
+---
