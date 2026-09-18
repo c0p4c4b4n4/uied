@@ -98,5 +98,83 @@
 
 **household**
 1. *(n)* all the people who live together in a house. **householder** *(n)*.
+2. *(adj)* belonging to, or to do with a house or family. *We all share the household chores.*
+
+---
+
+**housework** *(n)* work done to keep a house clean and tidy.
+
+---
+
+**hovel** *(n)* a small, dirty house or hut.
+
+---
+
+**hover** *hovering* *hovered*
+1. *(v)* to stay in one place in the air.
+2. *(v)* to linger, or be uncertain. *Horace hovered in the doorway.*
+
+---
+
+**hovercraft** *(n)* a vehicle that can travel over land and water, supported by a cushion of air.
+
+---
+
+**however**
+1. *(adv)* in whatever way, or to whatever extent. *You have to go, however much you hate it.*
+2. *(adv)* on the other hand. *We can't come on Friday. However, we could manage Saturday.*
+
+---
+
+**howl** *howling* *howled* *(v)* to cry like a dog or wolf in pain. **howl** *(n)*.
+
+---
+
+**HQ** *short for* **headquarters**
+
+---
+
+**hub**
+1. *(n)* the centre of a wheel. See **bicycle**.
+2. *(n)* the centre of an organization or activity. *London was the hub of the British Empire.*
+
+---
+
+**huddle** *huddling* *huddled* *(v)* to crowd together in a tight group. *We huddled together against the cold.*
+
+---
+
+**hue** *(n)* a colour, or a shade of a colour.
+
+---
+
+**huff** *(n)* If you are in a huff, you show that you are upset in a childish, sulky way.
+
+---
+
+**hug** *hugging* *hugged* *(v)* to hold someone tightly in a loving or caring way. **hug** *(n)*.
+
+---
+
+**huge** *huger* *hugest* *(adj)* enormous, or gigantic. *A huge amount of money.*
+
+---
+
+**hulk**
+1. *(n)* the remains of a wrecked ship.
+2. *(n)* a large, clumsy person. **hulking** *(adj)*.
+
+---
+
+**hum** *humming* *hummed*
+1. *(v)* to sing with your mouth closed. **hum** *(n)*.
+2. *(v)* to make a steady, buzzing noise. **hum** *(n)*.
+
+---
+
+**human**
+1. **human** or **human being** *(n)* a person. **human** *(adj)*.
+2. *(adj)* natural and understandable. *It was only human for Amy to get angry when her bike was stolen.*
+3. *(plural n)* When people campaign for **human rights**, they fight for everyone's right to have justice, fair treatment, and free speech.
 
 ---
